@@ -34,4 +34,5 @@
 ### Q12
 ![image](https://github.com/user-attachments/assets/aca3bc12-1be1-41ac-9063-d51db7b20bc4)
 
-### Q13
+### Q13 and Q14
+![image](https://github.com/user-attachments/assets/c719cddb-d8c7-477a-8866-3d5848cb236f)
